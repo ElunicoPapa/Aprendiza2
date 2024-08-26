@@ -12,4 +12,4 @@ Pablin.mendes.barboza@gmail.com
 00001110019324sp@al.educacao.sp.gov.br
 
 
-![_]([link GIF do Tenor](https://tenor.com/pt-BR/view/sans-undertale-dance-transparent-sans-pain-gif-20410054))
+![_]([link GIF do Tenor](https://tenor.com/bxNKA.gif)
