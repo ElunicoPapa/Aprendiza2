@@ -12,4 +12,4 @@ Pablin.mendes.barboza@gmail.com
 00001110019324sp@al.educacao.sp.gov.br
 
 
-![_]([link GIF do Tenor](https://tenor.com/bxNKA.gif)
+![](https://media1.tenor.com/m/vGwsOF_cIo8AAAAC/dreggman-announcement.gif)
